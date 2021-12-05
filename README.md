@@ -1,4 +1,4 @@
-👋 Hi, I’m @bahadironline
+- 👋 Hi, I’m @bahadironline
 - https://www.instagram.com/bahadironline
 - https://twitter.com/bahadirdansana
 - https://t.me/bahadironline
